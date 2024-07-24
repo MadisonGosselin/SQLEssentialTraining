@@ -1,1 +1,2 @@
-![image](https://github.com/user-attachments/assets/a8e690d7-25ae-4f59-947d-a7d24246a3c4)
+
+[CertificateOfCompletion_SQL Essential Training.pdf](https://github.com/user-attachments/files/16362773/CertificateOfCompletion_SQL.Essential.Training.pdf)
